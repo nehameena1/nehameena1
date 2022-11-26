@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @nehameena1
+- 👀 I’m interested in Software developing
+- 🌱 I’m currently learning technical language
+- 📫 How to reach me https://www.linkedin.com/in/neha-meena-864135247/
